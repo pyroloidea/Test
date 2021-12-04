@@ -95,7 +95,8 @@
 
 - 2021年1~10月塞出口top15企业
 
-![img](https://pics3.baidu.com/feed/622762d0f703918f453a3715dc025b9e5beec4cb.jpeg?token=c90896b91ff250a3036e74f0ba0996be)
+![622762d0f703918f453a3715dc025b9e5beec4cb](https://user-images.githubusercontent.com/50090797/144717861-c399ab39-c9d8-476f-9ee4-8e2b8b81c1e7.jpeg)
+
 
 - 投资风险点：ZF财政、地缘zz、入欧导致的法规变动、基础薄弱配套设施缺失
 
